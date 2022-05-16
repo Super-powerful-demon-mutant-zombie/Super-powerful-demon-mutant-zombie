@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Super-powerful-demon-mutant-zombie
 - 👀 I’m interested in: wasting people's time
 - 🌱 I’m currently learning: how to read at a 3rd grade level
-- 💞️ I’m looking to collaborate on: pyramid schemes
+- 💞️ I’m looking to collaborate on: pyramid schemes (jk)
 - 📫 How to reach me: Don't
 
 <!---
